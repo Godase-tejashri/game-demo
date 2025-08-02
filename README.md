@@ -1,1 +1,1 @@
-this is my 1st reposi
+this is my 1st repositery tejashri
